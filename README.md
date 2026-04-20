@@ -1,1 +1,1 @@
-# This is my portfolio. i hope you enjoy it!
+# This is my portfolio. I hope you enjoy it!
